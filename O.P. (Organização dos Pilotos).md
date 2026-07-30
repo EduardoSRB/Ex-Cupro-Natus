@@ -1,0 +1,5 @@
+A Organização dos Pilotos é um grupo imparcial criado pelos governantes das novas nações com o intuito de controlar o uso de [[Alloy Walkers]] em conflitos armados, afim de evitar destruição em massa e morte de civis, manter o equilíbrio de poder e garantir o estado de res nullius dos restos de [[Gallium]] e da [[Cromatita]].
+
+É representada por 5 integrantes, respectivamente de cada nação, que ocupam um cargo militar de importância e possuem vasta experiência com a pilotagem das máquinas, com base no argumento de que "apenas aqueles que experenciaram na pele o perigo dos Alloy Walkers podem discutir sobre seu futuro". Estes integrantes se reúnem em conferências para discutir gastos, sanções, poder de armamento, limitações e crimes de guerra relacionados aos Alloy Walkers.
+
+No ano de 302 po.Q.,  a organização foi desfeita quando seus membros repentinamente se revoltam contra às nações assumindo o novo nome de Dedos de Darwin, dando início à [[Neo Guerra]].

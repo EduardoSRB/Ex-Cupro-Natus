@@ -1,0 +1,9 @@
+No ano de 2089 d.C., a Terra foi atingida por um objeto de aproximadamente 30 metros de altura viajando a uma velocidade estimada de 1% da velocidade da luz. O impacto ocorreu no Oceano Pacífico e desencadeou uma sequência de desastres naturais severos, entre eles tsunamis, terremotos e alterações climáticas. Estes desastres resultaram na morte de aproximadamente 57% da população humana.
+
+O evento ficou conhecido como a Queda e marcou o início de um novo calendário, caracterizado pelos anos pré-Queda (pr.Q.) e pós-Queda (po.Q.).
+
+Com o colapso das estruturas governamentais, a humanidade passou a se reorganizar em colônias independentes que, ao longo dos séculos seguintes, deram origem às novas nações.
+
+Cerca de 200 anos após a Queda, o mistério do "meteoro" que não foi identificado nem pelos equipamentos mais avançados da antiga NASA ainda causava intrigas na população. Então, com a economia parcialmente recuperada, os novos governos iniciaram investigações sobre o objeto responsável pelo desastre. Expedições de reconhecimento foram enviadas ao local do impacto, onde pesquisadores da República de Nova Clébria, liderados pelo doutor Frederic Al'Sabar, encontraram estruturas metálicas desconhecidas incorporadas às profundezas oceânicas.
+
+Após a remoção do objeto, identificações encontradas em seus circuitos e placas internas revelaram o nome [[Gallium]]. A máquina foi distribuída entre instituições científicas ao redor do mundo, demonstrando uma tecnologia muito além da capacidade humana conhecida e um núcleo energético composto por um metal até então desconhecido, nomeado pelos engenheiros e cientistas de [[Cromatita]].

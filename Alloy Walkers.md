@@ -1,0 +1,8 @@
+Os Alloy Walkers são máquinas humanoides de aparência e dimensões variáveis desenvolvidas a partir do ano 257 po.Q., utilizando dados estruturais e tecnologias diretamente replicadas da máquina [[Gallium]]. Seus principais diferenciais são a presença de um núcleo interno composto por [[Cromatita]] sintética, responsável pelo fornecimento e gerenciamento de energia e seus propulsores elétricos avançados que proporcionam uma mobilidade excelente em qualquer tipo de terreno, os permitindo voar dezenas de metros e banalizar o atrito com o solo para deslizar.
+### História
+
+Inicialmente, os Alloy Walkers foram criados como ferramentas industriais destinadas a trabalhos manuais complexos e operações em grandes fábricas. Com o avanço da tecnologia e estabilidade econômica e a redução dos custos de produção, deixaram de ser equipamentos especializados e passaram a ser comercializados como veículos pessoais, tornando-se parte do patrimônio de cidadãos comuns.
+
+Entretanto, o aumento das tensões entre as novas nações levou ao surgimento de empresas dedicadas à fabricação de peças, sistemas de defesa e armamentos adaptados aos Alloy Walkers. A compra destes equipamentos foram restritos para instituições governamentais e militares, mas um vasto mercado negro se formou com o tempo, resultando na distribuição, mesmo que reduzida, para os cidadãos comuns.
+
+Por conta desse avanço militar e potencial de destruição enorme das máquinas, uma organização imparcial composta por representantes de todas as nações foi formada para regulamentar o uso dos Alloy Walkers, atendendo pelo nome de [[O.P. (Organização dos Pilotos)]].
