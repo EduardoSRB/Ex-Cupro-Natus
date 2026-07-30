@@ -1,4 +1,4 @@
-No ano de 2089 d.C., a Terra foi atingida por um objeto de aproximadamente 30 metros de altura viajando a uma velocidade estimada de 1% da velocidade da luz. O impacto ocorreu no Oceano Pacífico e desencadeou uma sequência de desastres naturais severos, entre eles tsunamis, terremotos e alterações climáticas. Estes desastres resultaram na morte de aproximadamente 57% da população humana.
+No ano de 2089, a Terra foi atingida por um objeto de aproximadamente 30 metros de altura viajando a uma velocidade estimada de 1% da velocidade da luz. O impacto ocorreu no Oceano Pacífico e desencadeou uma sequência de desastres naturais severos, entre eles tsunamis, terremotos e alterações climáticas. Estes desastres resultaram na morte de aproximadamente 57% da população humana.
 
 O evento ficou conhecido como a Queda e marcou o início de um novo calendário, caracterizado pelos anos pré-Queda (pr.Q.) e pós-Queda (po.Q.).
 
